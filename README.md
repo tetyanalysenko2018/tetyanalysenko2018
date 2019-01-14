@@ -1,2 +1,2 @@
-# tetyanalysenko2018
+# tetyanalysenko2018.github.io
 Мій сайт
